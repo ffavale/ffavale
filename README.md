@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @ffavale
+- 👀 I’m interested in creating unique solutions for my startup company.
+- 🌱 I’m currently learning too muchto list in a readme, dm me to find out more.
+- 📫 How to reach me currently, im offline for all intents and purposes.
